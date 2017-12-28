@@ -24,6 +24,9 @@
 1. ปัทมอาสนะ - https://youtu.be/6e9veVfhAmY
 1. หนุมานาสนะ - https://youtu.be/Bh6PAIh2_KY
 1. ท่านกพิราบ - https://youtu.be/sbkaGsGAB9E
+1. ท่านกพิราบพลิกแพลง - https://youtu.be/930HB6FadGw
+1. ท่าผีเสื้อ - https://youtu.be/Iuf9OHB1Y8M
+1. ท่าผีเสื้อพลิกแพลง - https://youtu.be/240bRRjlUM0
 
 # Abs & Waist
 1. ท่าบริหารหน้าท้องต้นขา - https://youtu.be/RVQ27lg4MfA

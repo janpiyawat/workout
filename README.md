@@ -25,3 +25,9 @@
 # Abs & Waist
 1. ท่าบริหารหน้าท้องต้นขา - https://youtu.be/RVQ27lg4MfA
 1. ท่าสัปตะวัชราสนะ - https://youtu.be/jQF7smeT7VY
+
+# Advanced
+1. Head Stand - https://youtu.be/g4DrOBRX5p4
+
+# หน้าขา
+1. ท่าอูฐ - https://youtu.be/X8RdA_8BhCc

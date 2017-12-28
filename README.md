@@ -1,3 +1,6 @@
+# Stretching
+1. ท่ายืดเหยียดผ่อนคลาย - https://youtu.be/v2P296P9ipo
+
 # Shoulders
 1. Opening the Shoulders - https://youtu.be/ppToA1N0CgE
 1. ท่ายืดสะบักและหัวไหล่ - https://youtu.be/_jVzUekv3xY
@@ -11,6 +14,8 @@
 1. Happy baby - https://youtu.be/d5waFtoyZ0M
 1. Cobra - https://youtu.be/d5waFtoyZ0M
 1. Downward dog - https://youtu.be/OngYLX3i8gI
+1. ท่าโลมา - https://youtu.be/5iLI0Yo3F7Y
+1. ท่ายืนขาเดียว - https://youtu.be/j_XHyJcgCuo
 
 # Split & Hip
 1. ท่าโลลาสนะ - https://youtu.be/VDxvS_jMR18
@@ -43,3 +48,4 @@
 
 # หน้าขา
 1. ท่าอูฐ - https://youtu.be/X8RdA_8BhCc
+1. นาฏะราชาสนะ - https://youtu.be/Ipu6YeZJLkA

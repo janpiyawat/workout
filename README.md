@@ -16,6 +16,8 @@
 1. ท่ายืดเหยียดข้างลำตัว - https://youtu.be/yWnQTe6B2jE
 1. ท่านาวาสนะ - https://youtu.be/KTqIU6zvmN0
 1. ท่าสุริยะนมัสการ - https://youtu.be/qCS2y6NcPCg
+1. ท่ายืดสะโพกและกระเบนเหน็บ - https://youtu.be/X8RdA_8BhCc
+1. ท่ากระชับสะโพก - https://youtu.be/6-10gzPtPIo
 # Hamstring
 1. ท่าชานุ ศีรษะอาสนะ - https://youtu.be/wK8HG3qTVLY
 1. ท่าจันทรานมัสการ - https://youtu.be/FZLVrBAfHN4

@@ -1,5 +1,5 @@
 # Shoulders
-1. Opening the Shoulders ข https://youtu.be/ppToA1N0CgE
+1. Opening the Shoulders - https://youtu.be/ppToA1N0CgE
 1. ท่ายืดสะบักและหัวไหล่ - https://youtu.be/_jVzUekv3xY
 1. ท่ายืดเหยียดสะบักหัวไหล่ - https://youtu.be/bkm9-MbOXQM
 1. ท่าวัว แมวบิดตัว - https://youtu.be/KBZLXXtfZOM

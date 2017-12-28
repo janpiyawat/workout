@@ -12,7 +12,7 @@
 # Back
 1. ท่าผีเสื้อแบบนอน - https://youtu.be/XUsttkUOOTQ
 1. Happy baby - https://youtu.be/d5waFtoyZ0M
-1. Cobra - https://youtu.be/d5waFtoyZ0M
+1. Cobra - https://youtu.be/aX9_NVgHs78
 1. Downward dog - https://youtu.be/OngYLX3i8gI
 1. ท่าโลมา - https://youtu.be/5iLI0Yo3F7Y
 1. ท่ายืนขาเดียว - https://youtu.be/j_XHyJcgCuo
@@ -26,6 +26,7 @@
 1. ท่ากระชับสะโพก - https://youtu.be/6-10gzPtPIo
 1. นกอินทรีย์ - https://youtu.be/Iafmukp0Obc
 1. ท่านักรบ - https://youtu.be/Iafmukp0Obc
+1. ท่าวีรภัทราสนะ - https://youtu.be/KcX7_U9zCmk
 
 # Hamstring
 1. ท่าชานุ ศีรษะอาสนะ - https://youtu.be/wK8HG3qTVLY

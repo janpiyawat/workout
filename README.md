@@ -20,6 +20,7 @@
 1. ท่ายืดสะโพกและกระเบนเหน็บ - https://youtu.be/X8RdA_8BhCc
 1. ท่ากระชับสะโพก - https://youtu.be/6-10gzPtPIo
 1. นกอินทรีย์ - https://youtu.be/Iafmukp0Obc
+1. ท่านักรบ - https://youtu.be/Iafmukp0Obc
 
 # Hamstring
 1. ท่าชานุ ศีรษะอาสนะ - https://youtu.be/wK8HG3qTVLY

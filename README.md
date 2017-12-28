@@ -23,10 +23,13 @@
 1. ท่าจันทรานมัสการ - https://youtu.be/FZLVrBAfHN4
 1. ปัทมอาสนะ - https://youtu.be/6e9veVfhAmY
 1. หนุมานาสนะ - https://youtu.be/Bh6PAIh2_KY
+1. ท่านกพิราบ - https://youtu.be/sbkaGsGAB9E
 
 # Abs & Waist
 1. ท่าบริหารหน้าท้องต้นขา - https://youtu.be/RVQ27lg4MfA
 1. ท่าสัปตะวัชราสนะ - https://youtu.be/jQF7smeT7VY
+1. B-Waist - https://youtu.be/VCodZIhVYFY
+1. B-Waist - https://youtu.be/IaRoSx9g3qI
 
 # Advanced
 1. Head Stand - https://youtu.be/g4DrOBRX5p4

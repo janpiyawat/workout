@@ -1,18 +1,27 @@
 # Shoulders
 1. Opening the Shoulders ข https://youtu.be/ppToA1N0CgE
 1. ท่ายืดสะบักและหัวไหล่ - https://youtu.be/_jVzUekv3xY
+1. ท่ายืดเหยียดสะบักหัวไหล่ - https://youtu.be/bkm9-MbOXQM
+1. ท่าวัว แมวบิดตัว - https://youtu.be/KBZLXXtfZOM
 1. ท่าคันไถ - https://youtu.be/YW2r_MEw8VY
-
+1. ท่าจตุรังคาสนะ - https://youtu.be/4e_Dc7sufes
 # Back
-## ท่าผีเสื้อแบบนอน - https://youtu.be/XUsttkUOOTQ
-## Happy baby - https://youtu.be/d5waFtoyZ0M
-## Cobra - https://youtu.be/d5waFtoyZ0M
-## Downward dog - https://youtu.be/OngYLX3i8gI
+1. ท่าผีเสื้อแบบนอน - https://youtu.be/XUsttkUOOTQ
+1. Happy baby - https://youtu.be/d5waFtoyZ0M
+1. Cobra - https://youtu.be/d5waFtoyZ0M
+1. Downward dog - https://youtu.be/OngYLX3i8gI
 
-# Split
-## ท่าโลลาสนะ - https://youtu.be/VDxvS_jMR18
-## ท่ายืดเหยียดข้างลำตัว - https://youtu.be/yWnQTe6B2jE
+# Split & Hip
+1. ท่าโลลาสนะ - https://youtu.be/VDxvS_jMR18
+1. ท่ายืดเหยียดข้างลำตัว - https://youtu.be/yWnQTe6B2jE
+1. ท่านาวาสนะ - https://youtu.be/KTqIU6zvmN0
+1. ท่าสุริยะนมัสการ - https://youtu.be/qCS2y6NcPCg
 # Hamstring
-## ท่าจันทรานมัสการ - https://youtu.be/FZLVrBAfHN4
+1. ท่าชานุ ศีรษะอาสนะ - https://youtu.be/wK8HG3qTVLY
+1. ท่าจันทรานมัสการ - https://youtu.be/FZLVrBAfHN4
+1. ปัทมอาสนะ - https://youtu.be/6e9veVfhAmY
+1. หนุมานาสนะ - https://youtu.be/Bh6PAIh2_KY
+
 # Abs & Waist
-## ท่าบริหารหน้าท้องต้นขา - https://youtu.be/RVQ27lg4MfA
+1. ท่าบริหารหน้าท้องต้นขา - https://youtu.be/RVQ27lg4MfA
+1. ท่าสัปตะวัชราสนะ - https://youtu.be/jQF7smeT7VY

@@ -1,6 +1,9 @@
 # Stretching
 1. ท่ายืดเหยียดผ่อนคลาย - https://youtu.be/v2P296P9ipo
 
+# Legs
+1. ท่าเก้าอี้ - https://youtu.be/w0d22fS4GDg
+
 # Shoulders
 1. Opening the Shoulders - https://youtu.be/ppToA1N0CgE
 1. ท่ายืดสะบักและหัวไหล่ - https://youtu.be/_jVzUekv3xY

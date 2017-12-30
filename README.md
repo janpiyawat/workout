@@ -56,3 +56,14 @@
 
 # Yoga for Sleep
 1. https://youtu.be/bOiR-ZO4Pnc
+
+# Morning Yoga
+1. https://youtu.be/l0Ebi54JjUA
+
+# Hatha Flow Yoga 
+1. https://youtu.be/GWg-siH2VEA
+
+# Vinyasa Flow Yoga
+1. https://youtu.be/bzSpwM9LiRs
+
+

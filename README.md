@@ -46,6 +46,7 @@
 1. ท่าสัปตะวัชราสนะ - https://youtu.be/jQF7smeT7VY
 1. B-Waist - https://youtu.be/VCodZIhVYFY
 1. B-Waist - https://youtu.be/IaRoSx9g3qI
+1. Popsugar - https://youtu.be/B-LEACOzlUs (Yoga mixed)
 
 # Advanced
 1. Head Stand - https://youtu.be/g4DrOBRX5p4

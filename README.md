@@ -48,6 +48,7 @@
 1. B-Waist - https://youtu.be/VCodZIhVYFY
 1. B-Waist - https://youtu.be/IaRoSx9g3qI
 1. Popsugar - https://youtu.be/B-LEACOzlUs (Yoga mixed)
+1. Boho - Pilates - https://youtu.be/Th8r8w6COUY (Yoga blocks)
 
 # Advanced
 1. Head Stand - https://youtu.be/g4DrOBRX5p4

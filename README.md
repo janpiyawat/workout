@@ -1,5 +1,6 @@
 # Stretching
 1. ท่ายืดเหยียดผ่อนคลาย - https://youtu.be/v2P296P9ipo
+1. Boho - https://youtu.be/YCEtPI3dk2U
 
 # Legs
 1. ท่าเก้าอี้ - https://youtu.be/w0d22fS4GDg

@@ -15,6 +15,7 @@
 1. ท่าวัว แมวบิดตัว - https://youtu.be/KBZLXXtfZOM
 1. ท่าคันไถ - https://youtu.be/YW2r_MEw8VY
 1. ท่าจตุรังคาสนะ - https://youtu.be/4e_Dc7sufes
+1. ท่าจตุรังคาสนะ -https://youtu.be/Imm2kaiKjqc
 
 # Back
 1. Blogilates - https://youtu.be/x795dZpmW7E

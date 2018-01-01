@@ -1,4 +1,5 @@
 # Stretching & Morning 
+1. Blogilates - https://youtu.be/dQvSTLubQmU
 1. Vinyasa - https://youtu.be/2L_oTbk0zLI
 1. Yoga - Popsugar & Adriene - https://youtu.be/q2G5ZX0JgvQ
 1. Boho - https://youtu.be/AYdQUS7jfPA
@@ -16,7 +17,7 @@
 1. ท่าจตุรังคาสนะ - https://youtu.be/4e_Dc7sufes
 
 # Back
-1. https://youtu.be/x795dZpmW7E
+1. Blogilates - https://youtu.be/x795dZpmW7E
 1. ท่าผีเสื้อแบบนอน - https://youtu.be/XUsttkUOOTQ
 1. Happy baby - https://youtu.be/d5waFtoyZ0M
 1. Cobra - https://youtu.be/aX9_NVgHs78
@@ -48,8 +49,8 @@
 # Abs & Waist
 1. ท่าบริหารหน้าท้องต้นขา - https://youtu.be/RVQ27lg4MfA
 1. ท่าสัปตะวัชราสนะ - https://youtu.be/jQF7smeT7VY
-1. B-Waist - https://youtu.be/VCodZIhVYFY
-1. B-Waist - https://youtu.be/IaRoSx9g3qI
+1. Blogilates - https://youtu.be/VCodZIhVYFY
+1. Blogilates - https://youtu.be/IaRoSx9g3qI
 1. Popsugar - https://youtu.be/B-LEACOzlUs (Yoga mixed)
 1. Boho - Pilates - https://youtu.be/Th8r8w6COUY (Yoga blocks)
 

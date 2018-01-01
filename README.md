@@ -1,4 +1,5 @@
 # Stretching & Morning 
+1. Vinyasa - https://youtu.be/2L_oTbk0zLI
 1. Yoga - Popsugar & Adriene - https://youtu.be/q2G5ZX0JgvQ
 1. Boho - https://youtu.be/AYdQUS7jfPA
 1. Boho - https://youtu.be/YCEtPI3dk2U
@@ -69,5 +70,5 @@
 
 # Vinyasa Flow Yoga
 1. https://youtu.be/bzSpwM9LiRs
-1. https://youtu.be/2L_oTbk0zLI
+
 

@@ -67,6 +67,7 @@
 
 # Morning Yoga
 1. https://youtu.be/l0Ebi54JjUA
+1. https://youtu.be/OMu6OKF5Z1k
 
 # Hatha Flow Yoga 
 1. https://youtu.be/GWg-siH2VEA

@@ -1,5 +1,6 @@
 # Stretching & Morning 
 1. https://youtu.be/TyqHraoVSDA กำหนดลมหายใจได้ดี
+1. https://youtu.be/-0P-UvolFqw stretching ได้ดี
 1. Blogilates - https://youtu.be/dQvSTLubQmU
 1. Vinyasa - https://youtu.be/2L_oTbk0zLI
 1. Yoga - Popsugar & Adriene - https://youtu.be/q2G5ZX0JgvQ

@@ -5,6 +5,10 @@
 1. Yoga - Popsugar & Adriene - https://youtu.be/q2G5ZX0JgvQ
 1. Boho - https://youtu.be/AYdQUS7jfPA
 1. Boho - https://youtu.be/YCEtPI3dk2U
+1. Yoga แก้เมื่อย - https://youtu.be/ufJNIYv6MHg
+
+# Yoga Workout
+1. https://youtu.be/_zaSw9tj6to
 
 # Legs
 1. ท่าเก้าอี้ - https://youtu.be/w0d22fS4GDg

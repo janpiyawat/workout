@@ -51,6 +51,7 @@
 1. ท่านกพิราบพลิกแพลง - https://youtu.be/930HB6FadGw
 1. ท่าผีเสื้อ - https://youtu.be/Iuf9OHB1Y8M
 1. ท่าผีเสื้อพลิกแพลง - https://youtu.be/240bRRjlUM0
+1. https://youtu.be/Wvj32thV6h0
 
 # Abs & Waist
 1. ท่าบริหารหน้าท้องต้นขา - https://youtu.be/RVQ27lg4MfA
@@ -69,6 +70,7 @@
 
 # Yoga for Sleep
 1. https://youtu.be/bOiR-ZO4Pnc
+1. https://youtu.be/-TKAeAf5P_w
 
 # Morning Yoga
 1. https://youtu.be/l0Ebi54JjUA

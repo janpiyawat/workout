@@ -87,5 +87,6 @@
 
 # Vinyasa Flow Yoga
 1. https://youtu.be/bzSpwM9LiRs
+1. https://youtu.be/c6VC-btpZZs
 
 

@@ -1,3 +1,7 @@
+# Yoga block
+1. หกกบ - https://youtu.be/ssFC2Pef_38
+1. https://youtu.be/lNfiGQDsHDo
+
 # Stretching & Morning 
 1. https://youtu.be/TyqHraoVSDA กำหนดลมหายใจได้ดี
 1. https://youtu.be/-0P-UvolFqw stretching ได้ดี

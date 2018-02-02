@@ -1,6 +1,9 @@
 # Down Dog
 1. https://youtu.be/N4hhM2D3s3I
 
+# Upward Facing Dog 
+1. https://youtu.be/uWowpruIR3Q
+
 # Chaturanga
 1. https://youtu.be/CeF5WixxQeI (like an airplane landing. Don't drop shoulders below elbows)
 1. https://youtu.be/MILkaKSMV3Q (plank - tailbone back, draw belly in)

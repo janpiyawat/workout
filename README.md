@@ -1,3 +1,14 @@
+# Down Dog
+1. https://youtu.be/N4hhM2D3s3I
+
+# Chaturanga
+1. https://youtu.be/CeF5WixxQeI (like an airplane landing. Don't drop shoulders below elbows)
+1. https://youtu.be/MILkaKSMV3Q (plank - tailbone back, draw belly in)
+1. https://youtu.be/4e_Dc7sufes
+1. https://youtu.be/Imm2kaiKjqc
+1. https://youtu.be/D3DXO4REdQI
+1. https://youtu.be/6RHz_4DuFEM
+
 # Yoga Wall
 1. https://youtu.be/_OQEIiZLY-0
 1. https://youtu.be/9-aodcSJXu4
@@ -20,7 +31,8 @@
 1. https://youtu.be/AWV0PwbZsP4
 1. https://youtu.be/4b0OKFq7ByI
 
-
+# Yoga Strap
+1. https://youtu.be/pFWMgCYa740
 
 # Yoga block
 1. หกกบ - https://youtu.be/ssFC2Pef_38
@@ -51,8 +63,6 @@
 1. ท่ายืดเหยียดสะบักหัวไหล่ - https://youtu.be/bkm9-MbOXQM
 1. ท่าวัว แมวบิดตัว - https://youtu.be/KBZLXXtfZOM
 1. ท่าคันไถ - https://youtu.be/YW2r_MEw8VY
-1. ท่าจตุรังคาสนะ - https://youtu.be/4e_Dc7sufes
-1. ท่าจตุรังคาสนะ -https://youtu.be/Imm2kaiKjqc
 1. ปีกไก่ - https://youtu.be/sttMOXLLEf8
 
 # Back

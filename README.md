@@ -1,3 +1,9 @@
+# "Hard" Yoga Poses Made Easy 
+1. https://youtu.be/utbtcwPKaC0
+
+# Splits
+1. https://youtu.be/oJNkX46OgtQ
+
 # crow pose
 1. https://youtu.be/GeAHINIZfXY (Draw shoulders away from ears. Gaze forward. Keep hip low. Core, Abs, and Feet engage.)
 1. https://youtu.be/DgvjvwPGLPY

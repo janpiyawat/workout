@@ -1,5 +1,5 @@
 # crow pose
-1. https://youtu.be/GeAHINIZfXY (Draw shoulders away from ears. Gaze forward. Keep hip low. Feet engage.)
+1. https://youtu.be/GeAHINIZfXY (Draw shoulders away from ears. Gaze forward. Keep hip low. Core, Abs, and Feet engage.)
 1. https://youtu.be/DgvjvwPGLPY
 1. https://youtu.be/eXLWMHANqlw
 1. https://youtu.be/nyulNF5uGz4

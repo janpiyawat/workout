@@ -16,6 +16,9 @@
 1. https://youtu.be/hPyx0uZvxAo
 1. https://youtu.be/DbKkqZR5UDM
 1. https://youtu.be/aPUxfTWQ9tA
+1. https://youtu.be/MB90z9KuBhw
+1. https://youtu.be/AWV0PwbZsP4
+1. https://youtu.be/4b0OKFq7ByI
 
 
 

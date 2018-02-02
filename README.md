@@ -1,3 +1,20 @@
+# Yoga Wall
+1. https://youtu.be/_OQEIiZLY-0
+1. https://youtu.be/9-aodcSJXu4
+1. https://youtu.be/KBSob5O5FjM
+1. https://youtu.be/tYmMA69euyE
+1. https://youtu.be/CaaQJTdnjf4
+1. https://youtu.be/5EAYXg4F_wk
+1. https://youtu.be/X8BUnjkH4QQ
+1. https://youtu.be/frmBW32WnsM
+1. https://youtu.be/wgnc9f9MILw
+1. https://youtu.be/e8kIQv5S3po
+1. https://youtu.be/uckBzvXNVp4
+1. https://youtu.be/L3yUXwJLYY8
+1. https://youtu.be/zLsY8xzti_k
+1. https://youtu.be/uN4DKLN4keo
+
+
 # Yoga block
 1. หกกบ - https://youtu.be/ssFC2Pef_38
 1. https://youtu.be/lNfiGQDsHDo

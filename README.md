@@ -1,3 +1,19 @@
+# Briohny Smyth
+1. https://youtu.be/B8B-MxxwHHo
+1. https://youtu.be/-VafxNyd_pg
+1. https://youtu.be/2TjAiSN0okY
+1. https://youtu.be/ySINmTN_ArQ
+1. https://youtu.be/l5OZFGNrxyM
+1. https://youtu.be/FtB2yiNILew
+1. https://youtu.be/5Bj5_knCsv0
+1. https://youtu.be/Tx5r__1dVWk
+1. https://youtu.be/eNakA_J3K5k
+1. https://youtu.be/hgOOu4fXlCo
+1. https://youtu.be/A4ViwsLKoSY
+1. https://youtu.be/4ZpI5C0njVM
+1. https://youtu.be/fltd85YgvrA
+
+
 # สุริยนมัสการ
 1. https://youtu.be/R91f3aJyYiE
 1. https://youtu.be/Zvk-E-b7QTM
@@ -149,6 +165,7 @@
 # Vinyasa Flow Yoga
 1. https://youtu.be/bzSpwM9LiRs
 1. https://youtu.be/c6VC-btpZZs
+1. https://youtu.be/AMgDVAUZxTM
 
 # 3-mins
 1. https://youtu.be/HnraD6_IlrA

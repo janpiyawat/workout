@@ -40,6 +40,7 @@
 # Chaturanga
 1. https://youtu.be/CeF5WixxQeI (like an airplane landing. Don't drop shoulders below elbows)
 1. https://youtu.be/MILkaKSMV3Q (plank - tailbone back, draw belly in)
+1. https://youtu.be/arHrStwJadM
 1. https://youtu.be/4e_Dc7sufes
 1. https://youtu.be/Imm2kaiKjqc
 1. https://youtu.be/D3DXO4REdQI

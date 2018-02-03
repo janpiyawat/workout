@@ -1,3 +1,8 @@
+# สุริยนมัสการ
+1. https://youtu.be/R91f3aJyYiE
+1. https://youtu.be/Zvk-E-b7QTM
+
+
 # "Hard" Yoga Poses Made Easy 
 1. https://youtu.be/utbtcwPKaC0
 

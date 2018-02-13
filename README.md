@@ -84,7 +84,10 @@
 1. Boho - https://youtu.be/AYdQUS7jfPA
 1. Boho - https://youtu.be/YCEtPI3dk2U
 1. Yoga แก้เมื่อย - https://youtu.be/ufJNIYv6MHg
+
+# Pilates
 1. https://youtu.be/iWjRCMB_mzY
+1. https://youtu.be/TZxzFaSLj_Y
 
 # Whole body
 1. https://youtu.be/rfNeey8WYKQ
@@ -143,6 +146,7 @@
 1. Blogilates - https://youtu.be/IaRoSx9g3qI
 1. Popsugar - https://youtu.be/B-LEACOzlUs (Yoga mixed)
 1. Boho - Pilates - https://youtu.be/Th8r8w6COUY (Yoga blocks)
+1. https://youtu.be/_qNmbXRZtfY
 
 # Advanced
 1. Head Stand - https://youtu.be/g4DrOBRX5p4

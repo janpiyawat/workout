@@ -84,6 +84,7 @@
 1. Boho - https://youtu.be/AYdQUS7jfPA
 1. Boho - https://youtu.be/YCEtPI3dk2U
 1. Yoga แก้เมื่อย - https://youtu.be/ufJNIYv6MHg
+1. https://youtu.be/iWjRCMB_mzY
 
 # Whole body
 1. https://youtu.be/rfNeey8WYKQ

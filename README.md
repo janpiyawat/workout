@@ -122,7 +122,7 @@
 1. ท่าโลลาสนะ - https://youtu.be/VDxvS_jMR18
 1. ท่ายืดเหยียดข้างลำตัว - https://youtu.be/yWnQTe6B2jE
 1. ท่านาวาสนะ - https://youtu.be/KTqIU6zvmN0
-1. ท่าสุริยะนมัสการ - https://youtu.be/qCS2y6NcPCg
+1. ท่าสุริยะนมัสการ - https://youtu.be/qCS2y6NcPCg, https://youtu.be/hSF55_Zj9Kg
 1. ท่ายืดสะโพกและกระเบนเหน็บ - https://youtu.be/X8RdA_8BhCc
 1. ท่ากระชับสะโพก - https://youtu.be/6-10gzPtPIo
 1. นกอินทรีย์ - https://youtu.be/Iafmukp0Obc
@@ -139,6 +139,7 @@
 1. ท่าผีเสื้อ - https://youtu.be/Iuf9OHB1Y8M
 1. ท่าผีเสื้อพลิกแพลง - https://youtu.be/240bRRjlUM0
 1. https://youtu.be/Wvj32thV6h0
+1. ท่ายืดขา - https://youtu.be/ySzRa7vvicU
 
 # Abs & Waist
 

@@ -178,3 +178,7 @@
 
 # 3-mins
 1. https://youtu.be/HnraD6_IlrA
+
+
+# Waist With This Abs and Back Workout
+1. https://youtu.be/ZaVXgohrSZE
